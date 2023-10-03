@@ -1,1 +1,1 @@
-# MMPhotography
+# MerandaMoweryPhotography
